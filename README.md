@@ -15,7 +15,4 @@ MENTOR : NEELA SANTOSH
 
 ![Image](https://github.com/user-attachments/assets/c7c9cbff-68b8-4266-b17c-f5d766f3e3b1)
 
-
-
-
 ![Image](https://github.com/user-attachments/assets/146b3529-dede-4e80-8d6c-25c114c23b76
